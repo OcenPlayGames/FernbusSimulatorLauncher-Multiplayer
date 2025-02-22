@@ -1,3 +1,3 @@
-Coming Soon!
+Dieses Project ist Coming Soon!
 
-Ich bitte sie diesen Launcher noch nicht zu Downloaden.
+Es kann auch sein das ich das Projet Abbrechen Werde.
